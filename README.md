@@ -7,4 +7,4 @@ My name is Robert Mancuso, I am a former Army Officer and West Point graduate tr
 - I am based out of Dripping Springs, TX (right outside Austin!)
 - I served as an Infantry Officer in the Army during my time in service, although I also held roles in training, recruiting, and marketing/public affairs
 
-- If you'd like to get in touch, feel free to reach out to me at mancuso.b3@gmail.com
+- If you'd like to get in touch, feel free to reach out to me on LinkedIn or at mancuso.b3@gmail.com
